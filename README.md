@@ -1,5 +1,7 @@
 - i code C++ i guess
 - contribute shit to my shit if you want
-- swirl#3814 or roachh@protonmail.com
-- i play DOOM 2016/eternal
+- swirl#1775 or roachh@protonmail.com
+- `v sauce` on steam cba to grab a link
+- i play DOOM 2016/eternal and csgo sometimes
+- i am racist (nascar sucjs)
 - h
