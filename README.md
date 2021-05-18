@@ -1,7 +1,17 @@
-- i code C++ i guess
-- contribute shit to my shit if you want
-- swirl#1775 or roachh@protonmail.com
-- `v sauce` on steam cba to grab a link
-- i play DOOM 2016/eternal and csgo sometimes
-- i am racist (nascar sucjs)
-- h
+* literal fucking monkey brain retard incapable of writing any actually good code
+
+* im looking for jobs if you need a professional chef please hire me, my world-renowned spaghetti code attracts so many fuckin customers dude holy shit
+
+* expert gentoo installer
+
+* Okay so listen. There was this one time I spent 17 hours trying to fix something in passman++. Okay so I couldnt figure it out so I just looked at the Qt docs for an hour only to figure out that QMainWindow::removeWidget deletes the fucking widget. Like wow how much of an autist do you have to be lmao literally could not be me
+
+* Kyrgyzstan
+
+* Na/K ATPase
+
+* I possess the ability to speak English
+
+* The last statement was false
+
+* h
