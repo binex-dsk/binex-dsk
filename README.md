@@ -1,6 +1,6 @@
 * literal fucking monkey brain retard incapable of writing any actually good code
 
-* im looking for jobs if you need a professional chef please hire me, my world-renowned spaghetti code attracts so many fuckin customers dude holy shit
+* im looking for jobs if you need a professional chef please hire me, my world-renowned spaghetti code attracts sO MANY CUSTOMERS dude like wow
 
 * expert gentoo installer
 
